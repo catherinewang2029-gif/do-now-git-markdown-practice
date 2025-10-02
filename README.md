@@ -1,1 +1,2 @@
-# do-now-git-markdown-practice
+# A memory at MESA
+A memory that I remember was when we had a **bonding trip**. I mostly have fun yapping to all the teachers and *zipling*. It was really fun and scary at the same time. I also made two **friends** during that time. Though I was bored most of the time since I didn't have my phone I still had fun *talking to my teachers and making new friends*.
